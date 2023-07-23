@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do josé guilherme 😁
+## Bem-vindo(a) ao perfil de josé guilherme 😁
 
  <div>
    <a href="https://github.com/guilherm707070
